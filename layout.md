@@ -11,3 +11,5 @@ ctjv7avu0lo.html
 7enjm2as6sc.html
 vj5b7mn1pkg.html
 992i9n8calo.html
+figures/watch-932814_960_720
+nb379u404es.html

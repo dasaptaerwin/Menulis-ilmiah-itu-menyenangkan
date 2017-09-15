@@ -15,6 +15,5 @@ figures/watch-932814_960_720
 nb379u404es.html
 figures/ego-2583323_960_720
 mtu1lqjcgjo.html
-d4atc4p427g.html
 figures/girl-1561943_960_720
 jr4jj21id5k.html

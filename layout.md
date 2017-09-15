@@ -7,4 +7,7 @@ jdmciubucu.html
 figures/telescope-2518989_960_720
 hjf8bvj0i9c.html
 figures/plumber-2547329_960_720
+ctjv7avu0lo.html
+7enjm2as6sc.html
+vj5b7mn1pkg.html
 992i9n8calo.html

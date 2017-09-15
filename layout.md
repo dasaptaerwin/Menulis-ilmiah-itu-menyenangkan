@@ -6,3 +6,5 @@ figures/kermit
 jdmciubucu.html
 figures/telescope-2518989_960_720
 hjf8bvj0i9c.html
+figures/plumber-2547329_960_720
+992i9n8calo.html

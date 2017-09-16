@@ -13,6 +13,8 @@ vj5b7mn1pkg.html
 992i9n8calo.html
 figures/watch-932814_960_720
 nb379u404es.html
+figures/36794041261_59fb64aa29_z
+spq6bmeu8r8.html
 figures/ego-2583323_960_720
 mtu1lqjcgjo.html
 figures/girl-1561943_960_720

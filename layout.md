@@ -18,5 +18,7 @@ figures/36794041261_59fb64aa29_z
 spq6bmeu8r8.html
 figures/ego-2583323_960_720
 mtu1lqjcgjo.html
+figures/Average-dissertation
+1sin0t8mato.html
 figures/girl-1561943_960_720
 jr4jj21id5k.html
